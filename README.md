@@ -6,7 +6,7 @@
 
 - **Jean-Marc Couffin** - BIM Specialist at https://www.bimone.com - https://www.linkedin.com/in/jmcouffin/
 
-- **Christoph Raidl** - https://twitter.com/christophraidl
+- **Christoph Raidl** - Master student Civil Engineering - https://www.linkedin.com/in/christoph-raidl
 
 - **Jacqueline Rohrmann** - Master student Civil engineering | BIM enthusiast | Generative design researcher | [That BIM Girl](https://www.youtube.com/channel/UC7L-NLe8FUBJAKrZi2tIWlQ?) - https://www.linkedin.com/in/jacqueline-rohrmann-b17130141/
 
