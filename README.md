@@ -5,7 +5,7 @@
 ### Team #2
 
 
-
+(https://github.com/jmcouffin/SchoolSound/blob/master/Presentation%20assets/SuperGallerificExpiladocidious.gif)
 
 - **Carmine Andrea Rago** - BIM Coordinator at http://grimshaw.global - https://www.linkedin.com/in/carmine-andrea-rago-927bb0a6/
 
